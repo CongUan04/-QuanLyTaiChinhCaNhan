@@ -131,7 +131,7 @@
     </p>    
 
 ## 5. 📞 Liên hệ: 
-Nếu có thắc mắc hoặc góp ý, vui lòng liên hệ qua <br> namhung1910@gmail.com
+Nếu có thắc mắc hoặc góp ý, vui lòng liên hệ qua <br> nguyenconguan04@gmail.com
 
 ---
 © 2025 Nhóm 11. All rights reserved.
